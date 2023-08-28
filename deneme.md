@@ -1,0 +1,7 @@
+## MARKDON
+1) Bir insanın, ALLAH'ın qüdrətini və gücünü anlamadan qarşısında ciddiyətlə dayanması mümkün deyildir
+2) İnsan Marifətullah ilə dərinləşdikcə, ALLAH'ın gücünü, qüdrətini, yaratma sənətini bildikcə ona qarşı olan qulluq vəzifəsinin ciddiyətini anlayacaqdır. ALLAH'ın gücünü qavramayan insana istədiyin qədər "Namazını qıl", "Orucunu tut" desəndə xeyri olmaz.
+3) ALLAH, öz böyüklüyünü göstərmək üçün kainat mülkünün genişliyini, nizamlılığını anlamağımızı istəyir. İnsan sorğulayan bir varlıqdır. Buna görə də insan "Niyə ALLAH'a qulluq etməliyəm ?" sualının cavabını tapmaq üçün özüdə daxil olmaqla (öz orqanizması) bütün kainata nəzər yetirməli, ən kiçik hüceyrədən ən böyük qara dəliklərə qədər baxmalı və ALLAH'ın yaratma sənətini qavraya bilməlidir
+4) ALLAH'ın ən kiçik atomdan ən böyük varlıqlara qədər hamısını öz nizamının içində özünə tabe ettirməsi onun gücünün böyüklüyünü, qüdrətini göstərir. Buna dəlildə, ALLAH'ın yaratdığı heç bir canılının O'nun qoyduğu nizamdan kənara çıxa bilməməsidir
+5) "Artıq üstlərindəki göyə baxmazlarmı ki onu necə sütunsuz, dirəksiz qurmuş və bəzəmişik, onun heç bir çatlağı yoxdur (Kaf Surəsi 6. Ayət)"
+6) Quran ayətləri bizim nəzərimizi, ALLAH'ın mülkünün genişliyinə çevirir. Sonra da o geniş mülkündəki icraatına çevirir. 
